@@ -1,1 +1,0 @@
-# unified-mentors-internship
